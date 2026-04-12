@@ -1,0 +1,1 @@
+# teste-agentes-ia-2026
